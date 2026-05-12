@@ -2,6 +2,14 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-13 02:37 IR
+- 🗜️ [The_Three_Idiots_Squad_Controversy_Is_Real.7z.001](https://github.com/Erf-an1/sandbox/raw/main/dl/The_Three_Idiots_Squad_Controversy_Is_Real.7z.001) `95.0MB`
+
+- 🗜️ [The_Three_Idiots_Squad_Controversy_Is_Real.7z.002](https://github.com/Erf-an1/sandbox/raw/main/dl/The_Three_Idiots_Squad_Controversy_Is_Real.7z.002) `23.8MB`
+
+---
+
+
 ### 📅 2026-05-13 02:35 IR
 - 🗜️ [ONE_NORMAL_MONSTER_SHOULD_NOT_DO_THIS!!!___Farfa_Learns_PLANTS_From_European_Champion_@SunseedJess!.7z.001](https://github.com/Erf-an1/sandbox/raw/main/dl/ONE_NORMAL_MONSTER_SHOULD_NOT_DO_THIS%21%21%21___Farfa_Learns_PLANTS_From_European_Champion_%40SunseedJess%21.7z.001) `95.0MB`
 
